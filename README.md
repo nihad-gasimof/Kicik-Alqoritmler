@@ -1,0 +1,1 @@
+# Kicik-Alqoritmler
